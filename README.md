@@ -1,1 +1,1 @@
-Mohon maaf, firebase dan gradient backgroundnya belum di buat
+pak, mohon maaf. filenya ke dischard all changes. jadi nya kehapus semua file praktikumnya
